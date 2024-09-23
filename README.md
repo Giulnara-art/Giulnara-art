@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Giulnara, i'm 40б i am yoga instructor and artist
+- 👋 Hi, I’m @Giulnara, i'm 40. I am yoga instructor and artist
 - 👀 I’m interested in music, contemporary-art, nutriciology, yoga and neurobiology...
 I want to become a frontender because i need a good stable job, that i can do from home and also a want to train my brain rathe intasivly to be sure im not getting down in self-development
 - 🌱 I’m currently learning at Strada cours (frontend)
