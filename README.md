@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Giulnara, i'm 40. I am yoga instructor and artist
 - 👀 I’m interested in music, contemporary-art, nutriciology, yoga and neurobiology...
-I want to become a frontender because i need a good stable job, that i can do from home and also a want to train my brain rathe intasivly to be sure im not getting down in self-development
+I want to become a frontender because i need a good stable job, that i can do from home and also a want to train my brain rathe intansivly to be sure im not getting down in self-development
 - 🌱 I’m currently learning at Strada cours (frontend)
   There were lots of tryin to get my dream job, but i was quit because of different things: it was not anougt time to reach a good level of competence, my mom's role and even death of my computer, but i 'm here fore one more try. Dont wont to give up!
 - I might quit this time again, and if it will be, i think the reason could be like i dont get the topic or cant remember everything i need, hope i'll be lucky this time
